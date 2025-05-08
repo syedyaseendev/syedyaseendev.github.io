@@ -53,5 +53,5 @@ By installing and using the extension, you consent to the processing of public l
 If you have questions or concerns about this privacy policy, contact:
 
 Odys Cars
-Email: [s.syedyaseen.s@gmail.com]
+Email: [hello@syedyaseen.dev]
 
